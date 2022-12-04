@@ -1,8 +1,11 @@
 # Hello！
-这里是Smail-Sprite / KingOsuper / GrooveMiku！是一个什么都想学却什么都学不会的人！也是一位（吸气）
+这里是Smail-Sprite / KingOsuper / Mon3tr_Hikari！是一个什么都想学却什么都学不会的人！也是一位（吸气）
 
 1. 热爱MC的方块人![](https://littleskin.cn/avatar/157399?size=36&png=1) ID：Ark_Lights
 2. 一位[OSU 4K Mania](https://osu.ppy.sh/users/16639726)玩家
+
+![](https://sign2.hiosu.com/KingOsuper&m.php)
+
 3. 一位刚入坑不久的Doctor
 4. 一位长草许久的旅行者
 5. 一位摆大烂的舰长
@@ -14,4 +17,4 @@
 
 总之就是这样啦！**Nice to meet you！**
 
-> 本文档写于2022/5/1，其中我的信息可能已经过期！
+> 本文档写于2022/12/4，其中部分信息可能已经过期！
