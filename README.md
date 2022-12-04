@@ -1,7 +1,7 @@
 # Hello！
 这里是Smail-Sprite / KingOsuper / Mon3tr_Hikari！是一个什么都想学却什么都学不会的人！也是一位（吸气）
 
-1. 热爱MC的方块人![](https://littleskin.cn/avatar/157399?size=36&png=1) ID：Ark_Lights
+1. 热爱MC的方块人 ID：[Mon3tr_Hikari](https://namemc.com/profile/Mon3tr_Hikari)
 2. 一位[OSU 4K Mania](https://osu.ppy.sh/users/16639726)玩家
 
 ![](https://sign2.hiosu.com/KingOsuper&m.php)
